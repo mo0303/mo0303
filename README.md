@@ -2,7 +2,7 @@
 
 Hey there 👋
 
-I’m Puripat, a 3rd year Engineering Student at BANGKOK UNIVERSITY, I like dog and cat 
+I’m Puripat 
 
 
 ##### Languages I use
